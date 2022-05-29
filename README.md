@@ -1,2 +1,0 @@
-# anichea
-Generational Wealth 
